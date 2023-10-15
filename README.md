@@ -24,4 +24,5 @@ https://app.powerbi.com/view?r=eyJrIjoiNmQyOTU5NzMtZjNjMi00OGU5LTg0NDAtNDBhYzNlO
 🔗 This is My Portfolio Link
 https://www.freelancer.com/u/motiranjan62?sb=t
 
+
 Thank you! 😊
